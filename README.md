@@ -29,3 +29,12 @@ Strong branding is the foundation of any successful product or service. Smart br
 Everything derives from your brand including messaging, look and feel, target market decisions, channel marketing decisions and more. Let’s make sure that you have the strongest, smartest and most fitting brand for your business…and your customers…and then, let’s bring it life!
 
 Please visit us online for more information on our [brand strategy](https://sunlightmedia.org/services/brand-strategy/).
+
+## Contact
+
+Sunlight Media is conveniently located right in the heart of downtown Los Angeles, with offices inside the beautifully-renovated Fine Arts Building. We are available for in-person meetings within the Los Angeles county area. Our operating hours are from 9am – 6pm Monday through Friday, and 9am to 3pm Saturday.
+
+**323.868.3581**
+
+<a href="https://sunlightmedia.org" target="_blank">Sunlight Media</a>
+
